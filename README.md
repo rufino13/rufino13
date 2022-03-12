@@ -1,0 +1,1 @@
+apesar do curso ser rápido, estou gostando e evoluindo
